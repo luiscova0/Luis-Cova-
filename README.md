@@ -1,17 +1,18 @@
 
 🚀 Sobre mim
 
-Olá! Me chamo Luis, tenho 18 anos e sou Assistente de TI em início de carreira, movido pela paixão por tecnologia e pelo desejo constante de evoluir na área, e estou cusando sistemas de informação 
+Sou Assistente de TI e iniciante na área de tecnologia, movido pela curiosidade e pela vontade constante de aprender. Tenho grande interesse por inovação, suporte técnico e pelo funcionamento dos sistemas que movem o mundo digital.
 
-Estou construindo minha base profissional aprendendo diariamente sobre suporte técnico, infraestrutura e sistemas, sempre buscando entender como a tecnologia funciona na prática e como posso utilizá-la para resolver problemas reais.
+Mesmo no início da minha jornada, estou comprometido em desenvolver minhas habilidades técnicas, entender boas práticas e evoluir diariamente dentro da área de tecnologia.
 
-Sou curioso, dedicado e determinado a crescer na área de tecnologia, desenvolvendo minhas habilidades técnicas e me preparando para novos desafios.
+💻 Experiência com suporte e rotinas de TI
 
-💻 Assistente de TI
+🔧 Interesse em infraestrutura, sistemas e desenvolvimento
 
-📚 Aprendendo e evoluindo todos os dias
+📚 Sempre aprendendo algo novo
 
-🚀 Focado em crescimento profissional na área de tecnologia
+🚀 Em constante evolução na minha jornada tech
 
-🤝 Aberto a oportunidades e novos desafios
+Acredito que a tecnologia é uma ferramenta poderosa para resolver problemas e transformar realidades — e estou construindo meu caminho para fazer parte disso.
 
+🚀💸 Nao tenha medo de falhar, tenha medo de estar no mesmo lugar daqui a um ano 💸
